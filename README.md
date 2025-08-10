@@ -56,7 +56,7 @@ With roots in **Operations & Supply Chain Management** and hands-on experience a
 ## 📬 Let’s Connect!  
 📧 **Email:** patil.jaye@northeastern.edu  
 🔗 **LinkedIn:** [linkedin.com/in/jayeshp-242e](http://www.linkedin.com/in/jayeshp-242e)  
-💻 **GitHub:** [github.com/YourUsername](https://github.com/)  
+💻 **GitHub:** [github.com/JayDataWorld08](https://github.com/)  
 
 ---
 
